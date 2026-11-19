@@ -1,0 +1,60 @@
+**Sri Krishna Mahalஸ்ரீ கிருஷ்ணா மஹால்**
+
+# Sri Krishna Mahalஸ்ரீ கிருஷ்ணா மஹால்
+
+Wedding and function hall in Thirupporurதிருப்போரூரில் உள்ள திருமண மற்றும் விழா மண்டபம்
+
+93852 99991 90030 23047
+
+Call to book. Open 5:00 AM to 10:00 PM.முன்பதிவுக்கு அழைக்கவும். காலை 5:00 முதல் இரவு 10:00 வரை.
+
+Front of Sri Krishna Mahal building, Thirupporur
+
+## About our mahalஎங்கள் மஹால் பற்றி
+
+Sri Krishna Mahal is a function hall on Sannathi Street in Thirupporur. It has a spacious hall for up to 500 people, a stage, DJ arrangements, and AC and non-AC rooms for your family and guests.
+
+Whether it is a wedding, a reception or a birthday, we help you host it with ease.
+
+ஸ்ரீ கிருஷ்ணா மஹால் திருப்போரூர் சன்னதி தெருவில் உள்ள விழா மண்டபம். 500 பேர் வரை கொள்ளக்கூடிய விசாலமான மண்டபம், மேடை, டிஜே ஏற்பாடுகள், குடும்பத்தினர் மற்றும் விருந்தினர்களுக்கான ஏசி, நான்-ஏசி அறைகள் உள்ளன.
+
+திருமணம், வரவேற்பு, பிறந்தநாள் என எந்த விழாவாக இருந்தாலும் எளிதாக நடத்த உதவுகிறோம்.
+
+- Space for 500 people500 பேருக்கு இடவசதி
+- Stageமேடை
+- AC and non-AC roomsஏசி, நான்-ஏசி அறைகள்
+- DJடிஜே
+
+Main hall at Sri Krishna Mahal
+
+Our hallஎங்கள் மண்டபம்
+
+Peacock wall art at Sri Krishna Mahal
+
+Peacock wall artமயில் சுவர் ஓவியம்
+
+## Events we hostநாங்கள் நடத்தும் விழாக்கள்
+
+- Weddingsதிருமணம்
+- Receptionsவரவேற்பு
+- Birthdays and functionsபிறந்தநாள் மற்றும் விழாக்கள்
+
+## Book your dateஉங்கள் தேதியை முன்பதிவு செய்யுங்கள்
+
+Call us to check if your date is free and to book the hall. You can call between 5:00 AM and 10:00 PM.உங்கள் தேதி காலியாக உள்ளதா என்று அறியவும் மண்டபத்தை முன்பதிவு செய்யவும் எங்களை அழைக்கவும். காலை 5:00 முதல் இரவு 10:00 மணி வரை அழைக்கலாம்.
+
+93852 99991 90030 23047
+
+## Find usஎங்கள் முகவரி
+
+Sri Krishna Mahal\
+No. 25, Sannathi Street,\
+Thirupporur – 603110ஸ்ரீ கிருஷ்ணா மஹால்\
+எண் 25, சன்னதி தெரு,\
+திருப்போரூர் – 603110
+
+[Open in Google Mapsகூகிள் மேப்பில் திறக்க](https://www.google.com/maps/search/?api=1&query=Sri+Krishna+Mahal+Sannathi+Street+Thirupporur+603110)
+
+© Sri Krishna Mahal · ஸ்ரீ கிருஷ்ணா மஹால், Thirupporur
+
+Call 93852 99991அழைக்க 93852 99991Call 90030 23047அழைக்க 90030 23047
